@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Johnboysmk
+- 👀 I’m interested in learning
+- 🌱 I’m currently learning from scratch
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me Johnhogle34@mailfence.com
